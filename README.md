@@ -1,1 +1,0 @@
-# ikramiye-da-t-m-program-
